@@ -1,1 +1,2 @@
-# there-are-no-bad-warriors-in-the-world
+# There Are No Bad Warriors In The World
+L’homme qu’on appelait l’homme le plus fort du monde. Champion poids lourd de la plus grande ligue d’arts martiaux au monde. Choi Hyun Suk, qui était l’homme le plus fort, commence une nouvelle vie en tant que guerrier dans un autre monde après sa mort. "Bouh ! Honorer! Un guerrier qui monopolise la beauté ! Rêvant d’un avenir brillant, il voyage dans un autre monde, où il rencontre une tête de vache musclée d’une tête plus grande que lui. Demanda le monstre qui était un officier de l’Armée du Roi Démon. "Champion ? Êtes-vous un guerrier ? "Euh... Vous êtes un homme courageux... ? C’est comme ça que l’enfer a commencé. Dérouler
